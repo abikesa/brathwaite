@@ -1,4 +1,4 @@
 - [Brathwaite](https://www.youtube.com/watch?v=JzOm6le-0jM)
-- Vaugh
+- Vaughn
 - Rihanna
 - Carribean
